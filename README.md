@@ -1,1 +1,8 @@
 # Minecraft-Calculator![image](https://github.com/user-attachments/assets/ca17c339-80ef-42b2-a70b-4ff6c4f53f8e)
+![Снимок экрана (94)](https://github.com/user-attachments/assets/d6bf2ae4-e0ec-4fee-8ee8-99fab369a165)
+![Снимок экрана (95)](https://github.com/user-attachments/assets/b5a4bf46-7daa-4a11-8c66-1adc51ed0af1)
+![Снимок экрана (96)](https://github.com/user-attachments/assets/b64928ef-fa7b-4ded-8c9f-586e4c9c9118)
+![Снимок экрана (97)](https://github.com/user-attachments/assets/22287f4c-7ea4-4ec9-9c13-c8a35b653424)
+![Снимок экрана (98)](https://github.com/user-attachments/assets/03010467-19fd-4682-88df-0c575339e50e)
+![Снимок экрана (99)](https://github.com/user-attachments/assets/ec7e140f-ffad-455d-a53a-02a01ec84352)
+![Снимок экрана (100)](https://github.com/user-attachments/assets/9e70f303-8a0e-4d91-91aa-5c44aeb2adc8)
